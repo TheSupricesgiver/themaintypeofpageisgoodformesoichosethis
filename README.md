@@ -1,1 +1,3 @@
 # themaintypeofpageisgoodformesoichosethis
+
+https://thesupricesgiver.github.io/themaintypeofpageisgoodformesoichosethis/
